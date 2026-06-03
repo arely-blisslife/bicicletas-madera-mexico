@@ -1,36 +1,76 @@
 # ESMIFER BICICLETAS
 
-## Tradición, Innovación y Movilidad Sustentable
+## Artesanía Mexicana. Innovación Sustentable.
 
-ESMIFER es una empresa familiar originaria de Ocotlán, Jalisco, reconocida por generaciones por su experiencia en la fabricación de muebles de madera de alta calidad.
+Una de las primeras bicicletas de madera desarrolladas en Latinoamérica, diseñada y fabricada artesanalmente en Ocotlán, Jalisco, por una familia con más de 40 años de experiencia en el trabajo de la madera.
 
-A partir de esta tradición artesanal, la empresa desarrolló una de las primeras y únicas bicicletas de madera en Latinoamérica, combinando diseño, ingeniería y sustentabilidad.
+---
 
-## Nuestra Visión
+## Nuestra Historia
 
-Impulsar soluciones de movilidad ecológica y experiencias turísticas únicas mediante bicicletas fabricadas artesanalmente con madera de origen responsable.
+ESMIFER nace en Ocotlán, Jalisco, reconocida como la capital mexicana del mueble. A partir de generaciones dedicadas a la carpintería y fabricación de mobiliario de alta calidad, desarrollamos una propuesta única que fusiona artesanía, diseño, movilidad y sostenibilidad.
+
+Cada bicicleta es elaborada a mano utilizando maderas de cultivo seleccionadas y procesos responsables con el medio ambiente.
+
+---
+
+## Innovación con Propósito
+
+Nuestra bicicleta de madera representa una alternativa sostenible para destinos turísticos, desarrollos ecológicos y programas de movilidad verde.
+
+### Características
+
+* Fabricación artesanal mexicana
+* Hasta 90% madera de cultivo
+* Diseño exclusivo
+* Alta resistencia y durabilidad
+* Absorción natural de vibraciones
+* Producción responsable y sustentable
+
+---
 
 ## Aplicaciones
 
+### Turismo y Hospitalidad
+
 * Hoteles y resorts
-* Parques ecológicos
 * Campos de golf
-* Desarrollos turísticos
-* Gobiernos municipales y estatales
+* Marinas
+* Clubes de playa
+* Comunidades residenciales
+
+### Sector Público
+
 * Programas de movilidad sustentable
+* Corredores turísticos
+* Centros históricos
+* Parques urbanos
+* Proyectos de innovación ambiental
+
+---
 
 ## Riviera Maya
 
-Actualmente buscamos alianzas estratégicas con organismos gubernamentales, desarrolladores turísticos y empresas comprometidas con la innovación sostenible en la Riviera Maya.
+Buscamos establecer alianzas estratégicas con organismos gubernamentales, desarrolladores turísticos y empresas comprometidas con la sostenibilidad para implementar soluciones innovadoras de movilidad ecológica en la Riviera Maya.
 
-## Beneficios
+---
 
-* Diseño único y exclusivo
-* Material sustentable
-* Producto artesanal mexicano
-* Atracción turística diferenciadora
-* Movilidad ecológica
+## Compromiso Ambiental
 
+Trabajamos con maderas de cultivo y promovemos programas de aprovechamiento responsable y reforestación, contribuyendo al desarrollo de productos con menor impacto ambiental y mayor valor social.
 
+---
 
-### Innovación mexicana hecha en madera.
+## Galería
+
+Próximamente.
+
+---
+
+## Contacto
+
+📍 Ocotlán, Jalisco, México
+
+🌱 Movilidad sustentable hecha en México.
+
+🚲 Diseño artesanal con visión de futuro.
